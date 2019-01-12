@@ -1,7 +1,6 @@
 ---
 layout: post
 title: three years and change
-date: {}
 published: true
 ---
 
