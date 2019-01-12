@@ -1,0 +1,18 @@
+---
+title: little enthusiasm    
+layout: post
+---
+
+hi there ~ i&#8217;m very glad it&#8217;s friday, as i&#8217;m sure all of you are, too. i called in sick today. i&#8217;ve been feeling really really out of it since getting back from italy, since trying to get ready for school, since my apartment has been overrun with ants (even into the freezer! i find them curled up in little balls at the edge of the freezer). 
+
+today i&#8217;m determined to:  
+a) get some sleep! (evey night for almost a week i&#8217;ve been waking up around two and four and other god-awful hours because either it&#8217;s too hot and muggy, there are ants crawling on my body, or mama cat oh-how-i-love-her is meowing her dang head off for food. needless to say i&#8217;m feeling a bit crabby.)   
+b) unclutter this teeny tiny apartment a little bit at least (every where i walk there&#8217;s either ants or cat litter underfoot ewww or there&#8217;s boxes and piles of papers-to-be-sorted sigh sigh.)  
+c) mentally prepare myself for school starting (i feel like a ten year old yelling to her mom &#8220;i don&#8217;t wannnna go to school! and you can&#8217;t make me! i hate you!&#8221; and slamming the door and all that drama. but who&#8217;s the mom here? me. i decided on this whole grad school thing. sigh. and i&#8217;m not ten. at ten it isn&#8217;t pretty. at twenty-seven it&#8217;s horrific.)   
+d) eat healthy-ish and maybe even excercise (gasp!) (about the healthy-ish, that&#8217;s coming from me eating an entire box of coconut meringues in the last two days. and that was my only fruit intake during those two days. and let&#8217;s not even start with vegetables. i am an unhealthy eater, especially recently with my ant-infested fridge. very gross and himiliating. i&#8217;m sooo sick of having fridge problems.)
+
+if i can get all four of these things done just a little bit today i will be happy. happier at least. that still won&#8217;t &#8211; can&#8217;t &#8211; solve the problem of my having zip enthusiasm for school right now. part of the problem is that there are no archives classes and no computer-related classes being offered this quarter. but mostly it&#8217;s because i just haven&#8217;t really clicked with anyone at school (now i&#8217;m like that kid that cries to it&#8217;s mom &#8220;noooobody likes me! i&#8217;m just a big ugly dork!! i hate you!&#8221; and slams the door. sigh. why is the mom always blamed?). 
+
+i mean there are women (the class is over 95% women) that i think are interesting and funny and smart and all those nice things one normally wants in a friend. but i never have any time to find out! i&#8217;m always rushing to/from work and during break i&#8217;m catching up on homework i didn&#8217;t do for that class or another. i can never catch lunch with anyone, or just hang out and chat. and sometimes, i think i seem oh just a tad weird, like i have two heads or something. i know, get over yourself andrea, right? but really i stress out about how my body posture must be seeming really aggressive, or maybe my tone of voice sounded snotty just then, or maybe my comments are just really inane or clearly demonstrating that i haven&#8217;t done a bit of reading the whole semester and that they&#8217;re thinking oh my god she can&#8217;t tell the difference between a collection, a series, or a record. argh. 
+
+p.s. one bad thing about staying home, that is just starting to dawn on me as the sun turnes on its&#8217; shine more and more, is that i will be in this teeny tiny cluttered ant-overrun apartment all day, even at high noon (aka &#8220;100+ degree weather plus thrown in some humidity&#8221; time). no a/c here, folks. sux.

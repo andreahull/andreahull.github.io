@@ -1,0 +1,22 @@
+---
+title: landowner    
+layout: post
+---
+
+happy mother&#8217;s day! and thank goodness for sundays, i wish they happened more often.
+
+as of noon today, i am almost a landowner. i say almost because with beauracacy and all, it&#8217;ll probably take a month to get the paperwork all done. it happened really quickly &#8211; my dad emailed me on friday about some land for sale in west virginia, an hour or so from my family&#8217;s home in maryland. i called him and we talked for a few minutes and then he made an appointment to go see the land with my mom on saturday. then last night, saturday night, he left a bunch of messages on my machine (vacya and i went to see super size me &#8211; it was really good.) so i call him back. two or three hours later, i&#8217;m telling him ok, tell the realtor we want it. this morning my dad sends me some maps of where the land is. crazy. and overwhelming. but at the same time, it won&#8217;t change my day-to-day at all and could at least partially be looked at as largely a financial thing, since land values out there are incredibly on the rise.
+
+but still. 6 acres in the eastern panhandle of west virginia, a mile or so away from sleepy creek wild management area, a step wilder than a park, and covering over 23,000 acres. it&#8217;s about an hour to my parent&#8217;s house, an hour and a half to d.c. and there&#8217;s a local marc (commuter) train station 15 minutes away. yup, i&#8217;m freaking out.
+
+the leftmost part of the t in martinsburg, in that first image, is where the land is, roughly. i guess officially, this land is in jones springs, west virginia, though it might be shanghai, west virginia. the second image is from the realtor, see he marked that there&#8217;s a free (stone-chip) driveway, though you can&#8217;t see it in this image, and also that there&#8217;s a great view, 360. my dad said there was a ton of oak, hickory, and other big trees, and also lots of mountain laurel. i didn&#8217;t really know what that looks like, except i vaguely remembered the leaves looked kinda look holly, so that last image is mountain laurel in bloom. wow, huh?
+
+i have at least two more years in california due to school, so i won&#8217;t be moving there any time soon, if i do at all. and what little i&#8217;ve read suggests the job situation in west virginia isn&#8217;t that great. but i could work as a librarian, archivist, records manager (yuck), or any number of things i guess. who know where i&#8217;ll be job-wise two years from now.
+
+but there&#8217;s so much beauty out there, that i know, even though i haven&#8217;t been there since i drove through west virginia on my way here to los angeles four years ago. i remember lots of green old forests and windy empty roads. they get a good 30 inches or more of snow a year. and a little more rain than that. in short, all four seasons are not only represented but glorious, too. my dad says that lot i bought (!) has lots of old trees, maybe 100 or so, that are over fifty feet high and that some of the trees you couldn&#8217;t even wrap your arms around. sigh. so pretty!
+
+i&#8217;m really lucky to have this chance, and i know it. it kinda of freaks me out cause it seems like it should be a big deal, but at the same time i know logically i won&#8217;t be able to even see the place till at least november. and live there? it doesn&#8217;t even have a shed! it&#8217;s a beautiful dark human-free forest.
+
+if i&#8217;m sounding less than super-excited and you feel like yelling at me for being so spoiled, i swear i&#8217;m really happy about this. it&#8217;s just all so much at once: i&#8217;m an adult, i won&#8217;t be here in l.a. for ever, i have a twenty-year mortgage (or at least will very soon), i want to live in a rural area (i do! i think so at least. argh. so fickle. no, i do. ..), i&#8217;d be moving to an almost all-white and all-English area, i&#8217;m growing up, i might be far away from a boy i love, my life is changing, and i&#8217;m not 21 any more. or even 25. and whatever choice there is is basically all up to me. this land sounds exactly like where i want to be in the future. the thing is, this future is awfully close, right around the corner. am i ready for it? it&#8217;s doesn&#8217;t matter, it&#8217;s coming anyway. now, how freaky is that.
+
+~andrea, a somewhat pitiful and lucky-as-hell 27 year old.

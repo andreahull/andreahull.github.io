@@ -1,0 +1,12 @@
+---
+title: dulces bolivianos    
+layout: post
+---
+
+<span class="pic3"><txp:thumbnail poplink="1" id="1134" /></span><span class="pic3"><txp:thumbnail poplink="1" id="1135" /></span><span class="pic3"><txp:thumbnail poplink="1" id="1136" /></span>
+
+oof, long time no write. that&#8217;ll teach me to make big promises about writing every day, huh. anyhow, hi there. <img src="http://localhost:8888/wordpress/wp-includes/images/smilies/icon_wink.gif" alt=";)" class="wp-smiley" /> 
+
+my mom got back from bolivia &#8211; she was there for a month &#8211; a week ago and brought back all kinds of nice gifts.. but the best was the sweets. i haven&#8217;t been there in over seven years now &#8211; way too long! &#8211; so delicious food stuff that you can only get there is all the more appreciated. first off, she gave me the blue box you see above, and was all mysterious about it &#8211; as soon as i opened it and the smell hit my nose, before i could even register what i was seeing, i started yelling out &#8220;torta de mil hojas!&#8221; called &#8216;thousand layer cake&#8217;, it&#8217;s made with puff pastry and dulce de leche and it&#8217;s like my favorite cake ever, hands-down, delish, amazing, etc etc. my mom snapped a shot right as i opened the box, so if i can get it, i&#8217;ll post it &#8211; i think i was literally hugging and kissing the cake. the other food stuff, in the red bowl pictured above, is called pasancaya, which i&#8217;m probably misspelling. basically it&#8217;s puffed corn sprinkled with sugar here and there. it&#8217;s delicious &#8211; and it&#8217;s really fun trying to find the most sugary ones in the bag. that&#8217;s a talent i used to pride myself on as a kid &#8211; i could always spot the super sugar ones. in la paz, bolivia&#8217;s capital, there&#8217;s one street where all they sell is pasancaya in these enormous sacks, ah i love that street.
+
+in other news, those of you whose addresses i have, keep an eye out in the mail. it&#8217;s a little late, as you&#8217;ll understand when you get it (sigh!), but i hope you all like it anyhow. i have pics explaining how i did it &#8211; and there&#8217;s a little hint of what to expect in the last image above -, but that&#8217;s all for another day when my computer is feeling happier. anyhow, just a little thank you for reading here and being such nice people. <img src="http://localhost:8888/wordpress/wp-includes/images/smilies/icon_wink.gif" alt=";)" class="wp-smiley" /> so corny. ok, happy tuesday everyone ~ ~

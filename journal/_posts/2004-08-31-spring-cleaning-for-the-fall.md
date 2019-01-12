@@ -1,0 +1,12 @@
+---
+title: spring cleaning for the fall
+layout: post
+---
+
+i&#8217;ve been feeling for a while that i have just way too much stuff, some of it definitely junky or never never used, and my apartment is just way too small. well, i can&#8217;t fix the small apartment thing, though my hand my be forced if they raise the rent anytime soon, which i&#8217;m afraid they will.. anyhow, but i **can** take care of the stuff part. i&#8217;ve been telling myself for a while that once the crazy month of traveling, that is, august, ended, then i would do some serious purging. about a month ago i got rid of seven or so groccery bags-worth of clothing (some sent home for safekeeping, sentimental-worthy clothes you know, and some put right out on the curb, disappearing within five minutes). 
+
+but now i have some serious more work to do: i need to get rid of ninety-five percent of my pants and jeans. i&#8217;ve written before that i&#8217;ve grown out of smallish hips and now have &#8220;birthing hips&#8221; as my sisters call them. i was sad about it, but i&#8217;ve gotten over that. i bought two new pairs that fit me great, new hips and all, so i am ready to begin the purge. but, it&#8217;s always painful. especially when i remember how much i paid for all these pants. literally i must have over a twenty-some paris of pants and jeans. i&#8217;ll do the count and post it (scintillating stuff, huh?).. 
+
+this post seems awfully superficial and i&#8217;m slightly embarassed about it, but i know that everyone has problems with organization (hence the tlc channel with it&#8217;s sweep up shows, etc) and over-consumption. i figure if i have half a dozen pants and jeans, a few skirts, a few dresses and lots of tops and sweaters, i&#8217;m good to go. plus, they all have to fit me well and don&#8217;t look like i&#8217;m trying to be a teenager nor a frumpy middle-aged woman. 
+
+beyond clothing, i have some serioius paper-work organizing to do and i need to basically empty out my whole filing cabinet and just start from scratch. as it stands now, the only time i go near the filing cabinet is to squeeze it open an inch and stuff a handfull of old receipts in. ay, and it&#8217;s gotta be done before school starts in a month.

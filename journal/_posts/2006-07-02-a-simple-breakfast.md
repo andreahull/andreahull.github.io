@@ -1,0 +1,15 @@
+---
+title: a simple breakfast
+layout: post
+---
+
+<span class="pic"><txp:thumbnail poplink="1" id="886" /></span>happy july ~ my computer has crashed <strike>five</strike> six times today, so i&#8217;m going to make it quick. [liz][1] has extended the idea of the &#8216;eat local challenge&#8217; month to dedicating one meal a week to be just local food throughout the summer. of course, i signed up &#8211; and [you can too][2], it&#8217;s never too late. i just barely made this week&#8217;s deadline, with a simple hearty breakfast yesterday morning-ish. everything was local except for the bread and feta. though both were locally made, i doubt the ingredients were local; also, the salt, pepper and olive oil weren&#8217;t local. there was a bunch more strawberries before the pictures were taken &#8211; they were just too good, i just kept thinking &#8216;ohhh, just *one* more..&#8217; <img src="http://localhost:8888/wordpress/wp-includes/images/smilies/icon_wink.gif" alt=";)" class="wp-smiley" /> <span class="pic"><txp:thumbnail poplink="1" id="887" /></span>what you see here: a minimalist bruschetta, roasted peppers, fluffy omelet, some herbed feta, and three delicious fruits to choose from.
+
+this week has been crazy &#8211; the biggest news is that i sold my car on thursday. that orange box next to my meal is an old collection of bus maps i have from several years back when i was riding the buses all the time &#8211; a great way to get to know a city fairly well. so, back on the bus i go. i&#8217;ve been taking the bus pretty often these past four weeks or so, but now that&#8217;s the only option. i&#8217;m happy about it and it *does* feel rather freeing, but i had a lot of nice memories in that car &#8211; lots of singing, laughing &#8211; and it feels like the first big step towards leaving california. <span class="pic"><txp:thumbnail poplink="1" id="888" /></span>sorry if i seem to always go on about moving, but i&#8217;ve been here six years and i never once moved growing up, plus i have a real life here that in some ways i just love, so yeah, it&#8217;s a real big deal that i keep wondering and muttering and sighing about.
+
+it&#8217;s hotter than i can take with no a/c, so i busted out the fan and am drinking a ton of water. no knitting, no spinning, but it&#8217;ll come around soon enough. mostly reading, walking a lot, and thinking hard. some dancing around my apartment too. bye for now ~ 
+
+p.s. trouble&#8217;s such a weirdo &#8211; she loves feta! and peanut butter and tomato sauce. i wetted her and mama cat down today several time &#8211; their fur was all punked out looking, especially trouble&#8217;s. then, with all that water on her, she got to feeling all frisky, started whipping her tail around, and looking like she wanted to race me around the apartment. my cats keep me sane.
+
+ [1]: http://www.pocketfarm.com/
+ [2]: http://www.pocketfarm.com/?page_id=319

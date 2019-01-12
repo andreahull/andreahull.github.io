@@ -1,0 +1,6 @@
+---
+title: procrastination
+layout: post
+---
+
+procrastination strikes once again&#8212;but at least i got good work done while not doing the work i really should be doing. i had a midterm due this past monday morning and as of one a.m. wednesday morning, i have yet to start it. but.. i did finally buy a ticket home for thanksgiving (yay!) and i&#8217;ve just converted this page from a table-laden one to a definitely smoother css one. for those of you who don&#8217;t know what i&#8217;m talking about, this page looks no different than it did four hours ago&#8212;that fact being a tad depressing but i don&#8217;t care! i know how big a difference this will be code-wise and overall web-wise. of course, there&#8217;s still kinks to smooth out, such as the cost of war counter above and also the mask images above. oh well! i really should start now- yuck. work has also been a bit hectic to say the least; the fund drive is in 5 count &#8216;em 8 days! and there is still so much that needs doing. all in all, this week *has* been painful, as predicted. but good music, sweet cuddlings, and the satisfaction of work well done (aside from that midterm) have made it much better. bye!

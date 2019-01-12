@@ -1,0 +1,12 @@
+---
+title: high winds    
+layout: post
+---
+
+<span class="pic"><txp:thumbnail poplink="1" id="1138" /></span>the power keeps turning on and off since late last night due to the crazy high winds (like 30 mph!) we&#8217;ve had the past sixteen hours or so &#8211; i sleep in what used to be the attic, so it&#8217;s particularly l o u d. whenever the power would come back on last night, the answering machine voice would automatically and patiently explain to me how to re-set it, the automatic-but-broken-for-a-year skylight-windows would try to &#8220;close&#8221; themselves, grinding the motor for five minutes plus, and weird tick-tocking sounds behind my head would start up again, freaking me out, and just generally causing not such good sleep. still, woke up pretty happy considering all that, as i&#8217;ve decided to take a mental health day, as my sisters call it. there were plans for today, but whoosh, they&#8217;re all out the window, carried away by these high winds. ha.<span class="pic"><txp:thumbnail poplink="1" id="1140" /></span>
+
+i&#8217;m accident-prone, always have been, but it&#8217;s a little ridiculous lately. yesterday i slipped on wet stairs outside and fell really really hard, so today i&#8217;m all puffy and sore, looking like someone took a baseball bat to my left leg plus a couple of crusty wounds as well. sounds dramatic perhaps, but i know my body is just giving me warning signs that i&#8217;m moving too fast and not thinking enough. i&#8217;ve been so busy busy busy doing things, and then all of a sudden, i&#8217;ll get just overwhelmed with where i am, what i&#8217;m doing, what i miss, and so on.
+
+i finished my tax stuff last night, i&#8217;m returning library books today, but other than that? <span class="pic"><txp:thumbnail poplink="1" id="1141" /></span>reading, writing, sleeping, a hot shower, good eating, some crafting, and cuddling with cats (oh how i love my cats!). today is a day to stay in. this wind reminds me how small i am, how nice it is to feel like any other animal, all snuggled up in bed, waiting for a true spring to come.
+
+p.s. paper paper is on my mind. for now, little shots of some bookbinding i&#8217;ve been practicing. did it for a bit years ago, so this is some much-needed refreshing.

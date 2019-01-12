@@ -1,0 +1,18 @@
+---
+title: super sunday
+layout: post
+---
+
+hi there ~ sunday night and all&#8217;s well. to sum up: today has been a good day, full of computer learning, library perusing and web browsing; i just ate a very good tamale with burnt cheese (the crispier the better, i say); and the air is beautifully crisp.
+
+also, although i was curious about audio books, i ended up not getting any from the library: it was too hard to find the right book. i figured i didn&#8217;t want to get a book i *knew* i&#8217;d like, because i&#8217;d rather read it myself. but i didn&#8217;t want to get a book i wasn&#8217;t interested in, because .. well, that&#8217;s self-explanatory. so i had to choose a book that i was so-so interested in, that normally i would bypass but then think about somewhat regretfully later, trying to remember the name. but since it would have been my first audio book, i wanted to make sure it was a good experience, which means ideally a really good book. so silly, i know. afterwards, i was kinda relieved because i was also worried i wouldn&#8217;t like the reader&#8217;s voice, or the way they triumphantly/calmly/angrily/etc read a certain passage, or (the horror) maybe there would be really cheesy background music. so that was that, no audio book was chosen. 
+
+in other news, i [got a gmail invite][1] (yay) but i have to choose a name. of course, andrea at gmail is gone (lucky girl whoever you are). so i&#8217;ve been racking my brain trying to find something clever. or adult without being boring. i already have lots of email accounts, as i&#8217;m sure do most people using the internet on any kind of regular basis. in fact, i have five: one for ucla, one for work, one at this site, and two from hotmail. then i also have the forever-forwarding from my old college account. i hate having to keep track of all of them and i&#8217;ve been trying to get rid of the hotmail accounts but weaning my family in particular has been difficult. so, a sixth email account? but it&#8217;s *gmail*.. yes, i&#8217;ve bought the [hype][2]. (btw, a big problem with gmail, as i understand it, is that there isn&#8217;t <acronym title="post office protocol"><a href="http://en.wikipedia.org/wiki/Post_Office_Protocol">POP3</a></acronym> or <acronym title="internet message access protocol"><a href="http://en.wikipedia.org/wiki/IMAP">IMAP</a></acronym> capabilities so i won&#8217;t be able to use mail.app or thunderbird to check, but there *is* the very handy [gmail extension][3] for firefox that tells me what i get new mail.)
+
+so that&#8217;s all for now ~ awfully self-involved, huh? .. as you can see, i&#8217;ve been faced with some serious dilemmas today. all i can say is.. thank goodness! i don&#8217;t want to be a drama queen or a moping perpetually-sad wallflower. so, yay to the little controversies and quandries, i much prefer them. 
+
+p.s. i&#8217;ve been thinking about just being openly bloggy and listing more than one post at a time on this index page but when i did i realized immediately it was a no go. why? because it was embarrassingly obvious when viewing post after post after post that i write too much. my posts are tremendously long, especially when compared to most other blogs. so, thank you, dear reader, you are (literally) one in a billion.
+
+ [1]: http://isnoop.net/gmailomatic.php
+ [2]: http://gmail.google.com/gmail/help/about.html
+ [3]: http://nexgenmedia.net/extensions/
