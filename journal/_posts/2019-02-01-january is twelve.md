@@ -1,4 +1,9 @@
-![screenshot of goodreads books read so far this year]({{site.baseurl}}/journal/_posts/goodreads2019_feb12019.png)
+---
+title: january is twelve
+layout: post
+---
+
+![screenshot of goodreads books read so far this year]({{site.baseurl}}/assets/img/goodreads2019_feb12019.png)
 
 hooray, twelve books read in january! even if i don't read a single book the rest of the year - which would be frustrating to say the least - at least i have now read as many book as there are months in a year, and two more than last year. it is very easy to get caught in a numbers game with these goodread challenges - how many books did x read? how many pages is this book i want to read? will it take too long? is it cheating to count this novella? etc etc. so silly, all of it - and i know that logically of course but it's easy nonetheless to fall into that kind of thinking. 
 
